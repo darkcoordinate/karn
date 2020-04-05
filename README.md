@@ -4,4 +4,7 @@
 ### An unexpected meeting
 -------------------------
 
-"Ooh!... You have a meeting to attend." Raghav woke up with with a headache. "Fuck ! This headache. " '''He looks at his cellphone. 10 missed call ! same number ! Who is this person.'''
+"Ooh!... You have a meeting to attend." Raghav woke up with with a headache. "Fuck ! This headache. " He looks at his cellphone. '''10 missed call ! same number ! Who is this person.''' Private Number!. "Okay I couldn't call him back" Let's see If he calls back
+
+## Chapter 2
+### An Invitation
